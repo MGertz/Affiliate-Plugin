@@ -1,0 +1,1 @@
+If you like this plugin, please review it at wordpress.org and 
